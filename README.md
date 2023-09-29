@@ -1,4 +1,4 @@
-👋 Hi, I’m @NaomiDanae
+👋 Hi, I’m Naomi.
 - 👀 I’m interested in reading, writing, and video games.
 - 🌱 I’m currently earning my Master's degree in library science. 
 - 📫 I can be reached via email at naomidanaespicer@gmail.com.
